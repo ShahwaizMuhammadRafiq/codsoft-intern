@@ -2,7 +2,7 @@
 done 4 task of codsoft of the intership you can also join codsoft for the best helpful task and internship.
 
 Join us through:
-LinkedIn: CODSOFT
+LinkedIn: [CODSOFT](https://www.linkedin.com/company/codsoft/)
 
 Telegram: https://t.me/codsoftt
 
